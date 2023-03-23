@@ -1,2 +1,1 @@
-# zinzendorf-page
-under construction!
+# Edition der Tagebücher Karl Grafen Zinzendorfs
